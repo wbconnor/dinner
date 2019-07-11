@@ -1,7 +1,7 @@
 ## Dinner July 12
 
-Here's your dinner invnitation you fookin' kneeler
+### 6:17 pm 
 
-### Show Up
+### 5056 Deeds Rd SW Pataskala, OH 43062
 
-5056 Deeds Rd SW Pataskala, OH 43062
+### Bring your own damn food
